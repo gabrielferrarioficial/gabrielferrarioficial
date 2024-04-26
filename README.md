@@ -1,16 +1,14 @@
 ### Hi there 👋
 
-<!--
-**gabrielferrarioficial/gabrielferrarioficial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+-meu nome e João Gabriel 
+[alura](https:\\www.alura.com.br)
+-estou usando essa plataforma do alura para me desenvolver na linguagem 
+-ultilizo o essa plataforma para me organizar
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### voce entra em contato comigo📫
+
+00001116058054SP@al.educacao.sp.gov.br
+
+
+https://media1.tenor.com/m/0WyPJvp2ZwMAAAAd/cat-cats.gif
